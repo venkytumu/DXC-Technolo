@@ -1,1 +1,1 @@
-# DXC-Technolo
+# DXC-Technology
